@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @fromage-fondu
 - 👀 I’m interested in all kind of fromages
-- 🌱 I’m currently learning all existing fromages
+- 🧀 I’m currently learning about all existing fromages
 - 💞️ I’m looking to collaborate on fromage based recipes
 - 📫 Don't try to reach me
 - 😄 I will happily gather with fromage lovers 
